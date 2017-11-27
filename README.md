@@ -6,7 +6,7 @@ I am  here,
 
 yet i am gone?
 
-youre eyes are so cold
+your eyes are so cold
 
 you are bitter for lost ways
 
