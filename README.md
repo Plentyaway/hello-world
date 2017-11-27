@@ -2,12 +2,12 @@
 
 Hello Mother
 
-I am  here,
+I am ~~here~~,
 
 yet i am gone?
 
 your eyes are so **cold** 
 
-you are bitter for **lost** ways
+you are __bitter__ for **lost** ways
 
 live to **love** one day
