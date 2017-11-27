@@ -8,6 +8,6 @@ yet i am gone?
 
 your eyes are so **cold** 
 
-you are __bitter__ for **lost** ways
+you are _bitter_ for **lost** ways
 
 live to **love** one day
