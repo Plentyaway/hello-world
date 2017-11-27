@@ -6,8 +6,8 @@ I am  here,
 
 yet i am gone?
 
-youre eyes are so #cold
+#youre eyes are so cold
 
-you are bitter for ##lost ways
+##you are bitter for lost ways
 
-live to ###love one day
+###live to love one day
